@@ -1,6 +1,9 @@
 # Nitric-acid
 https://en.wikipedia.org/wiki/Nitric_acid
 
+# Favorite:
+- [High-Purity Nitric Acid at Home?! Discover the Surprising DIY Method](https://youtu.be/JBW9s1RY214)
+
 # Process:
 https://en.wikipedia.org/wiki/Ostwald_process
 
